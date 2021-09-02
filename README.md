@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mabelina
+- 👀 I’m interested in data research and sport science.
+- 🌱 I’m currently learning public health and statistics.
+- 📫 How to reach me ... FB: MJ Peng IG: @whale.wellmed
+- love diving surfing and swimming.
